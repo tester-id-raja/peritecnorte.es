@@ -1,1 +1,0 @@
-# peritecnorte.es
